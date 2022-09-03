@@ -6,8 +6,11 @@ https://www.youtube.com/watch?v=-axh0EiotKc
 https://www.youtube.com/watch?v=TxrugGx_y9E
 CP的起因/來上節目的理由(找對象/抄笑話/抄創意)/結婚是自然法則/人怕出名豬怕肥(明星除外)/我媽不讓VS我媽同意了(談戀愛)/手把手教學結婚
 
+🔊李雪琴：這到底是什麼王者！十句話弄得舞台炸裂，唯一不准觀眾笑的人 | 脫口秀大會 S3 |綜劇安利社
+https://www.youtube.com/watch?v=KxTLPnPi0IU
+天賦異稟=畫大餅/有錢人也生小孩(貓頭鷹起飛不叫)/電爆所有人/
+
 🔊一決勝負！全新新人李雪琴句句帶梗，這是被激發鬥志真想贏了啊！ | 脫口秀大會 S3 |綜劇安利社
 https://www.youtube.com/watch?v=4-t_t3PhWrU
 
-🔊李雪琴：這到底是什麼王者！十句話弄得舞台炸裂，唯一不准觀眾笑的人 | 脫口秀大會 S3 |綜劇安利社
-https://www.youtube.com/watch?v=KxTLPnPi0IU
+
