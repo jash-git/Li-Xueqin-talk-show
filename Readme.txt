@@ -18,3 +18,6 @@ https://www.youtube.com/watch?v=y5IwKBSDhxM
 爆笑【李雪琴talkshow】職場上的那​​些不真實瞬間，首次分享爆笑職場經歷，來跟李雪琴一起學習必備技能 [職場黑話]
 https://www.youtube.com/watch?v=wqhlpY3CAUc
 喜劇的奧義是冒犯/奧義的冒犯是不能罵在場的大官/黑話的定義:委婉說些難聽的話/耿直=情商低/隨便寫=我才知道什麼不行/笑點VS笑喘/魯迅推廣白話文/三明治談話法(三具中間一句罵人):你最近工作項目做得不錯，就是愛遲到，但工作效率挺高的/
+
+知乎 x 李雪琴的成人世界答辩会 完整版
+https://www.youtube.com/watch?v=d_dgUsup__4
